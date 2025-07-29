@@ -1,3 +1,4 @@
 # sanjay
 a sanjay project
-fhjfturfcgxf,u 
+god of war
+god of thunder
